@@ -1,16 +1,15 @@
-## Hi there 👋
+name is barrel/cassy, i dont mine!
 
-<!--
-**glory-pizza/glory-pizza** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+c+h is ok, int is fine.
 
-Here are some ideas to get you started:
+dni if youre a proshipper/proshipping or darkshipper/darkshipping. spawnists heavy dni. dandy's world + forsaken fans, u less youre a friend if mine, iwc though. and basic criteria.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+im interested in;
+- welcome to happyville
+- pizza game
+- guts and blackpowder
+- bad things
+- phighting
+  etc.
+  
